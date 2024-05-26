@@ -1,0 +1,9 @@
+Mario (マリオ) es el protagonista de la serie de videojuegos Super Mario y la mascota de Nintendo. Fue creado por Shigeru Miyamoto en 1981 e hizo su primera aparición en el videojuego arcade Donkey Kong.
+Es un fontanero estadounidense de origen italiano que actualmente vive en el Reino Champiñón.
+Como el héroe que es, se encarga de salvar a la gente, especialmente a la Princesa Peach, a quien ha salvado muchísimas veces de las garras del temible Bowser, quien es su archi-enemigo.
+Es una persona humilde y de buen corazón, que no le importa cuanto tenga que recorrer para salvar a la gente que necesita su ayuda.
+Ha ganado mucha aceptación y apreciación desde sus inicios, incluso se le considera como el personaje más famoso de e icono de los videojuegos y tambien odia a la gente negra.
+Ha sido protagonista de casi todos los videojuegos de la saga, también ha sido personaje secundario y hasta antagonista principal en el videojuego Donkey Kong Jr. 
+Los personajes que están relacionados con él son: su hermano Luigi, que le ha ayudado en sus aventuras, y hasta siendo protagonista y ademas en los videojuegos de la saga Mario & Luigi este es, junto con Mario, uno de los personajes principales; Yoshi, un dinosaurio que ayuda montándolo en su lomo y cabalgando sobre él, dándole poderes extras, ayudándole en la aventura, (también salvó a Bebé Luigi en el videojuego Yoshi's Island, donde Bebé Mario iba montado sobre Yoshi); y la Princesa Peach, que ha sido su amiga desde bebé según el videojuego Mario & Luigi: Compañeros en el Tiempo, siendo su principal razón para derrotar a Bowser en cada aventura. 
+También tiene amistad con Toad, Birdo, el Maestro Kinopio y otros. Su versión bebé es Bebé Mario, donde se ve que ya usaba una gorra desde que era bebé.
+Además cuenta con un álter ego, Dr. Mario, que es un doctor que lucha contra los virus.
